@@ -1,5 +1,4 @@
-Chapter 3: Assessing Your Current Approach to Problem-Solving: Techniques for Identifying Areas of Strength and Weakness in Current Approaches
-==============================================================================================================================================
+# Techniques for Identifying Areas of Strength and Weakness in Current Approaches
 
 In order to improve your problem-solving skills, it is important to assess your current approach to problem-solving. This chapter will explore techniques for identifying areas of strength and weakness in your current approach.
 

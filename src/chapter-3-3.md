@@ -1,5 +1,4 @@
-Chapter 2: The Basic Idea Behind Visionary Problem-Solving: Strategies for Using this Approach to Maximize Potential
-====================================================================================================================
+# Strategies for Using this Approach to Maximize Potential
 
 Visionary problem-solving is an approach to problem-solving that involves thinking creatively and outside of the box. This chapter will explore the basic idea behind visionary problem-solving and provide strategies for using this approach to maximize potential.
 

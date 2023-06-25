@@ -1,5 +1,4 @@
-Chapter 5: Leveraging Tools and Resources for Effective Problem-Solving: Strategies for Using These Tools and Resources to Support Effective Problem-Solving
-============================================================================================================================================================
+# Strategies for Using These Tools and Resources to Support Effective Problem-Solving
 
 Effective problem-solving requires more than just a good idea; it requires the right tools and resources. In this chapter, we will explore strategies for using these tools and resources to support effective problem-solving.
 
