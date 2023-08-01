@@ -10,8 +10,6 @@ Whether you're facing personal or professional challenges, "Unlocking Your Inner
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
-MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
-
 
 
 1. Effective problem-solving
