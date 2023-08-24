@@ -1,5 +1,3 @@
-Recap of the Key Takeaways from the Book
-====================================================
 
 In this book, we explored the science of effective problem-solving and the concept of visionary problem-solving. Here are the key takeaways from this book:
 

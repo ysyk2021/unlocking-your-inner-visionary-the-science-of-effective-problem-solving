@@ -1,4 +1,3 @@
-# Conclusion
 
 Effective problem-solving is a crucial skill that can lead to personal and professional success. In this book, we've explored the science behind effective problem-solving and techniques for unlocking your inner visionary.
 

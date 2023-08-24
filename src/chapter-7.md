@@ -1,5 +1,3 @@
-Chapter 6: Navigating Obstacles and Resistance in Problem-Solving
-=================================================================
 
 Effective problem-solving can be a challenging process, with obstacles and resistance often arising along the way. In this chapter, we will explore the obstacles and resistance that can arise when seeking to use effective problem-solving, techniques for managing obstacles and overcoming resistance, and strategies for developing effective communication and collaboration skills.
 

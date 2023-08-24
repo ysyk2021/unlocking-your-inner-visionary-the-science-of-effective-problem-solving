@@ -1,5 +1,3 @@
-Strategies for Using Tools and Resources to Support Effective Problem-Solving
-======================================================================================
 
 In this chapter, we will explore strategies for effectively utilizing tools and resources to enhance problem-solving skills and unlock your inner visionary. By harnessing the power of these tools, you can tackle challenges more efficiently and develop innovative solutions.
 

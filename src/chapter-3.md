@@ -1,5 +1,3 @@
-Chapter 2: The Basic Idea Behind Visionary Problem-Solving
-==========================================================
 
 Visionary problem-solving is an approach to problem-solving that involves thinking creatively and outside of the box. This chapter will explore the basic idea behind visionary problem-solving, techniques for understanding the principles of visionary problem-solving, and strategies for using this approach to maximize potential.
 

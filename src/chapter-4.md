@@ -1,5 +1,3 @@
-Chapter 3: Assessing Your Current Approach to Problem-Solving
-=============================================================
 
 Assessing your current approach to problem-solving is a crucial step in improving your problem-solving skills. This chapter will explore the importance of assessing your current approach when seeking to refine your strategies, techniques for identifying areas of strength and weakness in your current approaches, and strategies for analyzing past successes and failures to inform future approaches.
 

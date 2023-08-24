@@ -1,5 +1,3 @@
-Techniques for Managing Obstacles and Overcoming Resistance
-====================================================================
 
 In this chapter, we will explore techniques for managing obstacles and overcoming resistance in the process of effective problem-solving. Obstacles and resistance are common challenges that can impede progress and hinder the successful resolution of problems. By employing these techniques, individuals can navigate through obstacles and build the momentum needed to overcome resistance along the way.
 

@@ -1,5 +1,3 @@
-Chapter 1: Understanding the Fundamentals of Effective Problem-Solving
-======================================================================
 
 Effective problem-solving is a vital skill that can help individuals achieve success in all areas of life. In this chapter, we will explore the fundamentals of effective problem-solving, techniques for cultivating a mindset towards effective problem-solving, and tips for identifying personal obstacles to effective problem-solving and overcoming them.
 
